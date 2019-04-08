@@ -1,12 +1,14 @@
 Popcorn in order of yumminess:
-6. Jiffy-Pop
-5. Microwave (regular butter)
-4. Wasabi Microwave bag
-3. Smartfood 
-  *White Cheddar
-  *Gouda & Chive
-  *Pepper & Provolone
-2. Stove-Top
+
 1. Cinema Popcorn w. Extra Butter
+2. Stove-Top
+3. Wasabi Microwave Bag
+4. Smartfood
+  1. White Cheddar
+  2. Gouda & Chive
+  3. Pepper & Provolone
+5. Microwave (pref. extra butter or salted)
+6. Jiffy Pop
+
 
 Purposfully excluded: Kernals. They're expensive.
